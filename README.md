@@ -1,1 +1,1 @@
-This is a portfolio descriotion regarding details about my work 
+This is a portfolio description regarding details about my work 
